@@ -1,0 +1,2 @@
+# CFPL-Documentation
+Chandra Fabrics Private Limited (CFPL) was incorporated in 1995. It is a 100% export oriented unit, recognized as a leading garment export house. With a world-class infrastructure and latest technology, CFPL has cemented its position as a trusted and preferred vendor to well-known companies around the world. By delivering quality products at the right time, we seek a lasting relationship with all our clients. 
